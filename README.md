@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @BaeJaeSung
+- 👀 I’m interested in .game developing. c sharp. and python
+- 🌱 I’m currently learning .computer and Information(정보통신).Android studio . and Unity
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me .send email to baejaesungofficial@gmail.com..
